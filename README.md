@@ -77,6 +77,17 @@ The University of Essex Online has a significant international presence, with st
 -  Law and Criminology (Focusing on various aspects of legal studies and criminal justice)
 -  Psychology (Offering insights into human behavior and mental processes)
 
+### 4. Eaton Business School
+Eaton Business School (EBS) is a prominent online educational institution affiliated with several British and European universities, including accreditation by Italy-based Guglielmo Marconi University (GMU). EBS has established itself as a global platform for higher education, particularly in the Middle East, Asia, and Africa.
+### GLobal Enrollment
+EBS caters to a diverse student body, with learners from over 85 nationalities participating in its programs.
+### Popular Programs
+-  Master of Business Administration (MBA) in Supply Chain & Logistics Management
+-  MBA in Project Management
+-  MBA in Business Analytics
+-  MBA in Healthcare Management & Leadership
+-  Doctor of Business Administration (DBA)
+
 ---
 
 ## Why Students Choose International Online Degrees  
@@ -84,8 +95,8 @@ The University of Essex Online has a significant international presence, with st
 - Flexible Learning – Study from anywhere, anytime.  
 - Cost-Effective – No travel, accommodation, or visa costs.  
 - Career Growth – Gain globally recognized qualifications.  
-- Networking – Connect with professionals worldwide.  
-- Tech-Savvy Learning – Digital skills & e-learning tools.  
+- Access to World-Class Education and Networking – Students gain global exposure through networking with international peers.
+- Tech-Savvy Learning – Digital skills, e-learning tools, interactive content, live sessions, and virtual labs.
 - Accredited Degrees – Internationally recognized certifications.  
 
 ---
