@@ -45,7 +45,7 @@ Candex Solutions seeks to explore this market to identify opportunities for guid
 
 ---
 
-## Key Players in Online International Education  
+## Some Universities Offering Online International Education  
 
 ### 1. BYU-Pathway Worldwide  
 - Partners: BYU-Idaho & Ensign College  
@@ -160,7 +160,7 @@ Prioritize Nigeria, South Africa, India, Pakistan, the Philippines, Ghana, and K
 -  Offer Financing Support: Partner with institutions that provide flexible tuition payment plans to attract price-sensitive students.
 ### 3.  Build a Strong Accreditation & University Partnership Model
 Work with globally recognized universities that offer affordable and employer-recognized online degrees.
--  Partner with Top Online Degree Providers: Solidify relationships with institutions like University of Liverpool, University of Essex, BYU-Pathway Worldwide, and Eaton Business School to streamline student enrollment.
+-  Partner with Top Online Degree Providers: Solidify relationships with institutions like University of Liverpool, University of Essex, and Eaton Business School to streamline student enrollment.
 -  Guide Students on Accreditation: Provide transparent information on accredited degrees that meet visa and work permit requirements.
 -  Leverage Recognition Lists: Focus on programs listed in Canada’s WES (World Education Services) database and similar evaluation bodies.
 ### 4.  Address Trust & Credibility Concerns in Online Learning
